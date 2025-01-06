@@ -4,3 +4,4 @@ In early 2015, I dove into the whirlpool of my consciousness to craft drafts for
 
 Thus, L / R was born—not as a compromise, but as a new point of convergence where past and present meet like a tractor and a plow carving new paths through the field of possibility.
 
+https://canfly.org/adiom/L-R
